@@ -1,0 +1,1 @@
+# fuichie.github.io
